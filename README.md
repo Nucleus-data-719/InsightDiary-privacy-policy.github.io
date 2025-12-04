@@ -1,0 +1,1 @@
+# InsightDiary-privacy-policy.github.io
